@@ -1,4 +1,4 @@
-baseURL = "https://weaverpedia.net/"
+baseURL = "https://gaspodethemad.github.io/weaverpedia"
 languageCode = "en-us"
 relativeURLs = false
 disablePathToLower = true
