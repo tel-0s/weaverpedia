@@ -1,6 +1,5 @@
 ---
 title: MUSPACE
-author: gaspode
 tags:
 - locations
 ---
