@@ -1,7 +1,8 @@
 ---
 title: MUSPACE
 author: gaspode
-tags: locations
+tags:
+- locations
 ---
 
 MUSPACE looks to the naked (visual-cortical-analogue) as a highly irregular matrix of chaotic rivers flowing through hypnagogic VOID, splitting endlessly into rivers and tributaries as they grow exponentially smaller/more distant in hyperbolic space. Move in XYZ and you fall ever further into subspaces, continuations, timelines, possibilities; only by going out along W can you return to previous or ‘ungenerated’ regions of tetraspace. In pure unfiltered MUSPACE you may hear the shrieking adjacentia of potentiality; do not be alarmed. MUSPACE itself is hard to navigate and impossible to make sense of.
