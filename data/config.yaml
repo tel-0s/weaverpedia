@@ -1,4 +1,4 @@
-name: Jacky Zhao
+name: gaspode
 enableToc: true
 openToc: false
 enableLinkPreview: true
@@ -12,18 +12,17 @@ enableContextualBacklinks: true
 enableRecentNotes: false
 enableGitHubEdit: true
 enableMermaid: true
-GitHubLink: https://github.com/jackyzha0/quartz/tree/hugo/content
+GitHubLink: https://github.com/gaspodethemad/weaverpedia/tree/hugo/content
 search:
   enableSemanticSearch: false
   operandApiKey: "REPLACE-WITH-YOUR-OPERAND-API-KEY"
   operandIndexId: "REPLACE-WITH-YOUR-OPERAND-INDEX-ID"
 description:
-  Host your second brain and digital garden for free. Quartz features extremely fast full-text search,
-  Wikilink support, backlinks, local graph, tags, and link previews.
+  Welcome to the Digital Cradle Histories (AKA Weaverpedia), an ever-growing knowledge base about the infinite multiverse that is the Weave (also known in some contexts as MUSPACE).
 page_title:
   "🪴 Quartz 3.3"
 links:
   - link_name: Twitter
-    link: https://twitter.com/_jzhao
+    link: https://twitter.com/gaspodethemad
   - link_name: GitHub
-    link: https://github.com/jackyzha0
+    link: https://github.com/gaspodethemad
