@@ -1,7 +1,7 @@
 name: gaspode
 enableToc: true
 openToc: false
-enableLinkPreview: false
+enableLinkPreview: true
 enableLatex: true
 enableCodeBlockTitle: true
 enableCodeBlockCopy: true
