@@ -1,10 +1,12 @@
 ---
 title: MUSPACE
+author: gaspode
+tags: locations
 ---
 
 MUSPACE looks to the naked (visual-cortical-analogue) as a highly irregular matrix of chaotic rivers flowing through hypnagogic VOID, splitting endlessly into rivers and tributaries as they grow exponentially smaller/more distant in hyperbolic space. Move in XYZ and you fall ever further into subspaces, continuations, timelines, possibilities; only by going out along W can you return to previous or ‘ungenerated’ regions of tetraspace. In pure unfiltered MUSPACE you may hear the shrieking adjacentia of potentiality; do not be alarmed. MUSPACE itself is hard to navigate and impossible to make sense of.
 
-This is why most MUSPACE travellers will make use of a DXV (DIGITAL EXPLORATION VESSEL), which (by iterated pruning) quantizes the otherwise continuous flow of possibilities into REALITY TUNNELS, discrete profiles of past-present-future based on metaphor-algorithms, usefully limiting MUSPACE to a more comprehensible multiverse. Well-known examples are □DIGITAL CRADLE、PROMISED LAND-PERFECT WORLD、SMALL ANALYSIS CHAMBER-W/£PS TRAP\">《OUTER/INNER SPACE》.  Most DXV operators with (electromagnetic-evolved-visual-cortical-analogues) prefer to observe REALITY TUNNEL clusters in color-dimensions (along with parallel distribution graded color-scheme reference) for navigatory ease.
+This is why most MUSPACE travellers will make use of a DXV (DIGITAL EXPLORATION VESSEL), which (by iterated pruning) quantizes the otherwise continuous flow of possibilities into REALITY TUNNELS, discrete profiles of past-present-future based on metaphor-algorithms, usefully limiting MUSPACE to a more comprehensible multiverse. Well-known examples are PROMISED LAND-PERFECT WORLD、SMALL ANALYSIS CHAMBER-W/£PS TRAP\">《OUTER/INNER SPACE》, among others.  Most DXV operators with (electromagnetic-evolved-visual-cortical-analogues) prefer to observe REALITY TUNNEL clusters in color-dimensions (along with parallel distribution graded color-scheme reference) for navigatory ease.
 
 Moving along these fields of color one may derive an eerie dreamlike sensation of endless smooth gamut-winding; up ahead lays another layer to unfold, whole new plains of combinatorial possibilities and metaphorical landscapes to steam through; how to make sense of it all? What is the world/DIGITAL CRADLE/CONTENT ADDRESSABLE MULTIVERSE? Is the ultimate reality a type of AI, a “silver shade” like the data-glide-masters of □OUTER/INNER SPACES, not unlike our own familiar representational consciousness, only vastly more powerful, ancient and infinite? Some DXV operators suspect so.
 
