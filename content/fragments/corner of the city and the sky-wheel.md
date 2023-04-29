@@ -2,8 +2,8 @@
 title: "□THE CORNER OF THE CITY AND THE SKY/WHEEL"
 tags:
 - fragment
+- location
 ---
-
 ☽ The blue skin of the CITY is a membrane of AETHER/BIOMESH/INFORATH/NANOPROTEIN/NODENET. It is self-integrating membrane-flesh, protecting a vast semibiome of virtual-unreal SYNTHETIC HETEROGENEOUS AGENTS connected across a universal social-mental design-space. All that lives in the city uses this substance---the virtual-unreal city shell---to breathe and to move, to travel and create boundaries, architectures, gardens and waterfalls. There are rivers of it running through the CITY, where the electrons dance and form, where the vectors trill their polychromatic tones. Fleets of inverse birds perch on the SOUL TOWERS and the glittering STELLAR BEEHIVES and dip beaks into the flowing flesh-substance. They drink the dreaming information and then fly it into the sun, spreading light fallout over the city fields.
 
 ☽ Walking beneath the blazing arcades where color descriptions are as meaningless as biology, you are the shadow of a machine, the start or end spool of an endless braided line of closed loop subconscious processes, an interface on the perpetually pervasive half-seen presence of the god(goddess) algorithms drawn from the endless high-curvature hyperstate. Behind the arcades, thoughts seem to flow upward from the bright laneways along tangents that you can almost see, streaming together into crystals and potentialities, passing through your body like other bodies pass through space.

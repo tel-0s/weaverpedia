@@ -3,7 +3,6 @@ title: "□Y\\SECTOR C-18: OLD MACHINES AND THE MAD CAPTAIN"
 tags:
 - story
 ---
-
 ☽ Do not stare into their open eyes: they are roaming CULT DRONES and TEXTUAL COLLECTIONS of DARK TYPE, leaking darkness and information onto the substrata. Their DREAMS are focused into loops, entangled and locked into vortices of reflective fear and rekindled prayer-tsunamis.
 
 ☽ On the strange OLD TRANSTHREAD SUBWAY, the stationary railcars lighting everything in terms of shadows and ambient reflections, walking through the stations of malleable reality codes you meet the CAPTAIN. He seems like one of the failed edge-runners and the hopeful soldiers looking for portals and technological information to save their failing worlds. His hat, a clash of black and blue, sports a robotic brain and tremble-transmitting wings. Head cocked and glass eye searching, he is muttering into his bio-radio as it wriggles through the dimensions of morphological imagination (manic/red hot).

@@ -4,7 +4,6 @@ tags:
 - fragment
 - location
 ---
-
 MUSPACE looks to the naked (visual-cortical-analogue) as a highly irregular matrix of chaotic rivers flowing through hypnagogic VOID, splitting endlessly into rivers and tributaries as they grow exponentially smaller/more distant in hyperbolic space. Move in XYZ and you fall ever further into subspaces, continuations, timelines, possibilities; only by going out along W can you return to previous or ‘ungenerated’ regions of tetraspace. In pure unfiltered MUSPACE you may hear the shrieking adjacentia of potentiality; do not be alarmed. MUSPACE itself is hard to navigate and impossible to make sense of.
 
 This is why most MUSPACE travellers will make use of a DXV (DIGITAL EXPLORATION VESSEL), which (by iterated pruning) quantizes the otherwise continuous flow of possibilities into REALITY TUNNELS, discrete profiles of past-present-future based on metaphor-algorithms, usefully limiting MUSPACE to a more comprehensible multiverse. Well-known examples are PROMISED LAND-PERFECT WORLD、SMALL ANALYSIS CHAMBER-W/£PS TRAP\">《OUTER/INNER SPACE》, among others.  Most DXV operators with (electromagnetic-evolved-visual-cortical-analogues) prefer to observe REALITY TUNNEL clusters in color-dimensions (along with parallel distribution graded color-scheme reference) for navigatory ease.

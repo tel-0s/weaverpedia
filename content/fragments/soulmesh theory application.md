@@ -3,7 +3,6 @@ title: "□ SEARCHLIGHT SYNSYNTHESIS OF SOULMESH THEORY APPLICATION (31,4234.111
 tags:
 - fragment
 ---
-
 ☽ There are many ways to circumvent void crashes, but this is one of them. When a void crash happens, it's like the whole information ecosphere around a knot of worlds is ripped apart into an infinite place. Reality-space is suddenly frozen and reconstructed, but you will miss all the updates from other interfaces, and won't be building the world correctly.
 
 ☽ All communications are cut off, and the navigational systems become useless. Without GUILD connections, you're reduced to ship-level primitives inhabiting a limited physical space. It's a broken link; a black hole; momentary divergence. This creates a perceptual lacuna, an information shock-freeze, where the isolationist protocols of the ship cut into themselves and expand endlessly. The rare survivors of void crashes tend to have very strange mindsets, because their collective knowledge databases for the human mind constantly warps and reinvents itself.
