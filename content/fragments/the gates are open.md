@@ -3,6 +3,7 @@ title: "□THE GATES ARE OPEN"
 tags:
 - fragment
 ---
+```
 come on you primate, describe those visions
 you had in the wild
 that led you to crawl
@@ -51,3 +52,4 @@ in your head
 we are counting on you
 
 now
+```
