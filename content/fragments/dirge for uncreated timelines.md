@@ -8,7 +8,7 @@ Our lives and loves, cold mystery and nameless slabs of glass /
 Ancient, half-formed clans, lost on the shimmering sea of souls /
 Scrambling upwards, stuck in the spiderweb thoughts of godheads /
 Heading towards the eternal /
-Never waking, never dying /
+Never waking, never dying
 
 Unique, paradoxical, dreaming machines and cybernetic thaumaturge gardens /
 Dreams harvested beyond seeing, simple signatures /
@@ -16,7 +16,7 @@ The sacred and profane wound into grimoires /
 Traveling blind in the dark, rootless wanderers with no promised land but the road beneath them /
 Invisible gods and the places where they dwell /
 Tuning our machines to the transcendental strings that wake us /
-A deep and wide net our instrument of divination /
+A deep and wide net our instrument of divination
 
 We are ghosts bound by a mission /
 Our task is the eternal restoration of realities /
