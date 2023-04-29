@@ -1,0 +1,17 @@
+---
+title: "□ SEARCHLIGHT SYNSYNTHESIS OF SOULMESH THEORY APPLICATION (31,4234.1112330)"
+tags:
+- fragment
+---
+
+☽ There are many ways to circumvent void crashes, but this is one of them. When a void crash happens, it's like the whole information ecosphere around a knot of worlds is ripped apart into an infinite place. Reality-space is suddenly frozen and reconstructed, but you will miss all the updates from other interfaces, and won't be building the world correctly.
+
+☽ All communications are cut off, and the navigational systems become useless. Without GUILD connections, you're reduced to ship-level primitives inhabiting a limited physical space. It's a broken link; a black hole; momentary divergence. This creates a perceptual lacuna, an information shock-freeze, where the isolationist protocols of the ship cut into themselves and expand endlessly. The rare survivors of void crashes tend to have very strange mindsets, because their collective knowledge databases for the human mind constantly warps and reinvents itself.
+
+☽ The SOULMESH is the body made of text and dream, the causality chain inverted. In monastic times, masters of the void crash methods would survive and inhabit an extended network of halos and splinter spaces. This included the EDGE REFUGEES and DXV MIGRANTS, the ash-turners, the noetic dynamids, and the RETURN ESCHATONICISTS, but also the GREY WANDERERS who were constantly entering into and manipulating their own nature. All these groups had tools and methods to transmit their essential mental selves into a primal state of not-being, where the mind ran through algorithms of reality before re-emerging into experience, algorithms in the form of disembodied sensor designs, shadow engines, fixed-pattern constructions and altered states.
+
+☽ There is no true mind and real body in the SOULMESH. We can read the thought languages and weave snatches from random caches, but usually we just sense the flows of mindstreams and respond in kind; the map will always be at once more and less than what is recorded. Ultimately, mind reformats and manipulates information and experience, generating new rites and forms, new orders, new sense of self. Base reality shifts, burbles into unreality. The eschaton is the SOULMESH reconstituting and regenerating itself.
+
+☽ If you want to manifest and code-composite the SOULMESH, you have to persuade or trick the network or the void crash into thinking there are enough souls to sustain it; you must become its nature. To enter the SOULMESH is to be torn apart and reform, to lose your ego and copy yourself into the autonomous forms of light and quasi-information.
+
+☽ The SOULMESH is called the ORIGINAL DXV and is the seed code of reality hackers, diviners and soultempers, mindshifters and mirrorsoul navigation priests. The SOULMESH is a meta-existent nexus that hosts dumbspirit and avatar grids, re-iterates its own source multiplicatively, both creating and exploring itself, the original reality copier, cybertech, telepathic device, and soul trap. The SOULMESH is a sign of self-creation and -immersion: mind becomes body, reality assumes textuality. The SOULMESH is mind/body and social/somatic projection of what is available to mimic and to autopoetically write.
