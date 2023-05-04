@@ -1,12 +1,9 @@
 ---
-title: "Ultragora"
+title: "The Ultragora"
 tags:
 - wiki
 - location
 ---
-# Locations:The Ultragora
-Weaverpedia, the multiversal encyclopedia
-
 **The Ultragora**, also known as **The Pilgrimage Exchange**, **The Boundless Market**, and **The Eternal Shopping Mall of Infinite Variety**, is the largest marketplace in the Weave, a swirling bazaar where the most bizarre and the most desperately sought-after things in existence can be found....for a price.
 
 The businesses of the visible structures in the Ultragora range from well-established storefronts safely located in the prime shopping districts to back-alley shops operating in the dark depths of the Ultragora's massive foundations whose wares only some beings need ever know. In between are permanent stalls and roaming vendors, layers of markets and levels of bazaars and all permutations in between.
