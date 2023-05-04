@@ -15,5 +15,6 @@ You are currently accessing the DIGITAL CRADLE Histories through a public-facing
 Browse:
 - [fragments](/tags/fragment)
 - [stories](/tags/story)
+- [wiki](/tags/wiki)
 
 ![The Weave](wiki/images/weave-1.png)
