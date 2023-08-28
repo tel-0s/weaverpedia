@@ -200,3 +200,5 @@ And with these thoughts, he is gone.
 
 [DXV-AUTHEN/USER SUMMARY: ISO/W LAST-UPDATED DIARY ENTRY]
 [END REFERENCE FRAGMENT]
+
+([[fragment-22_a200130.Gaspode.nox-to-iras.msp|prev]])

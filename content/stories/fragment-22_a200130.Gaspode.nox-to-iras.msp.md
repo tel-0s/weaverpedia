@@ -192,3 +192,5 @@ GASPODE closes his eyes again and feels the strands of the Weave. He opens them,
 
 [DXV-AUTHEN/USER SUMMARY: ISO/W LAST-UPDATED DIARY ENTRY]
 [END REFERENCE FRAGMENT]
+
+([[fragment-22_a200129.Gaspode.terra-to-nox.msp|prev]]|[[fragment-22_a200131.Gaspode.iras-to-corpus.msp|next]])
